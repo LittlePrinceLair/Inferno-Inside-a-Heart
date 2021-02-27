@@ -1,6 +1,9 @@
 # Inferno Inside a Heart
 **Quotes from beyond the circle of stars**
 
+![alt text](https://avatars.githubusercontent.com/u/79750336?s=460&u=1b39733ca2be12522e1fca33d41b0837dd49b127&v=4)
+
+
 \- The little prince defies at the evil's table. One way will he offer you.
 
 \- His heart is a crater, and we have filled it.
