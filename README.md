@@ -33,7 +33,7 @@
 
 \- Oblivion offers solace. Take the gift. Take it.
 
-\- The screams in vain for justice from the lair were drowned in the winds.
+\- From the lair, the screams in vain for justice were drowned in the winds.
 
 \- He has failed his sanity in the evil's hands.
 
