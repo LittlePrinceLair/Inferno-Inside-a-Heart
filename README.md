@@ -5,7 +5,7 @@
 
 \- His heart is a crater, and we have filled it.
 
-\- Angels in the heart have been made a pawn.
+\- Angels in the heart have been made pawns.
 
 \- At the hour of his third death, he ushers in our coming.
 
