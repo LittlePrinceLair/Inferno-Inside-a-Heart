@@ -33,6 +33,8 @@
 
 \- Oblivion offers solace. Take the gift. Take it.
 
+\- The screams in vain for justice from the lair were drowned in the winds.
+
 \- He has failed his sanity in the evil's hands.
 
 \- His light sputters out.
